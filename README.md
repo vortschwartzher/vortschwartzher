@@ -1,5 +1,5 @@
 -  Hi, I’m @vortschwartzher
--  I’m interested in creating/making stuff like some of my code projects or redrawing my selfie photo to an anime version of me and adding Oshi no Ko eyes because why not, its cool and fun.   
+-  I’m interested in creating/making stuff like some of my code projects or redrawing my selfie photo to an anime version of me and adding Oshi no Ko eyes because why not, its cool and fun. (Yes the pfp is my anime-ted selfie photo with some edits.)   
 -  I’m currently learning something I couldn't tell.
 -  I’m looking to collaborate on nothing coz I really am that sucks doing a collaboration.
 -  How to reach me? do a little research.
